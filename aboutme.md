@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Pratik
-- 👀 I’m interested in...Cryptos, Nfts, Coding and ....
-- 🌱 I’m currently learning...e-commerce and a couple other skills to add on to my repertoire
+- 👀 I’m interested in... Cryptos, Nfts, Coding and ....
+- 🌱 I’m currently learning... e-commerce and a couple other skills to add on to my repertoire
 - 📫 How to reach me ... well just mail at 'pratikckb@gmail.com' .
 
 <!---
